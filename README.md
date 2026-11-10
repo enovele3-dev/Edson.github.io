@@ -1,2 +1,2 @@
 # Edson.github.io
-index.html.
+https://usodedrogasnasescolas.lovable.app
